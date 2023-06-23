@@ -4,3 +4,5 @@
 ![2](https://github.com/mireashik/algebra_2sem/assets/123753819/4ffcf045-46f4-45f2-8639-fba1713d7c95)
 
 ![3](https://github.com/mireashik/algebra_2sem/assets/123753819/4758b313-fa43-4169-ad63-c027c4f1cd36)
+
+![4](https://github.com/mireashik/algebra_2sem/assets/123753819/fffeade8-3a96-463e-aac0-4d9710dce291)
